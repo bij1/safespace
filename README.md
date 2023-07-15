@@ -21,7 +21,7 @@
 * Ik durf liefdevol en kritisch te kijken naar mijzelf.
 * Ik daag mezelf uit om mij open te stellen voor verbinding en begrip, ook als ik het ergens niet mee eens ben.
 * Ik respecteer dat ieder de regie heeft over hun eigen zijn en luister naar hoe zij aangesproken willen worden.
-* Ik onthoud dat wij één gezamenlijk doel hebben, daarom omarm ik diversiteit in persoon en mening.
+* Ik onthoud dat wij één gezamenlijk doel hebben, en omarm diversiteit in persoon en mening.
 
 > SAMEN MAKEN WIJ AL ONZE BIJ1KOMSTEN, ON-ÉN OFFLINE, EEN SAFE(R) SPACE VOOR IEDEREEN
 
